@@ -1,4 +1,4 @@
-#  
+#  Experience welcome to bloxburg like never before with welcome to bloxburg custom Scripts, the #1 Script. Includes no cooldown and auto-heal for
 
 
 
